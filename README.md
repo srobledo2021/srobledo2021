@@ -1,5 +1,5 @@
 
-## Voilà!.
+## Voilà!
 A primera vista un humilde veterano de vodevil en el papel de víctima y villano por vicisitudes del destino, este “visage” ya no más velo de vanidad es un vestigio de la vox populi ahora vacua, desvanecida. Sin embargo esta valerosa visión de una extinta vejación se siente revivida y ha hecho voto de vencer el vil veneno de estas víboras en avanzada quevela por los violentos viciosos y por la violación de la voluntad.
 
 El único veredicto es venganza, vendetta, como voto, y no en vano, pues la valía y veracidad de ésta un día vindicará al vigilante y al virtuoso.
