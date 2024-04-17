@@ -1,6 +1,4 @@
-
-![brchristianitycrucifixion](https://github.com/srobledo2021/srobledo2021/assets/113594786/304435c1-98f2-46ea-a781-ebf0bec71353)
-
+- ⚡ Fun fact:
 <!--
 **srobledo2021/srobledo2021** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
