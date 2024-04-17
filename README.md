@@ -1,11 +1,5 @@
 
-## Voilà!
-A primera vista un humilde veterano de vodevil en el papel de víctima y villano por vicisitudes del destino, este “visage” ya no más velo de vanidad es un vestigio de la vox populi ahora vacua, desvanecida. Sin embargo esta valerosa visión de una extinta vejación se siente revivida y ha hecho voto de vencer el vil veneno de estas víboras en avanzada que vela por los violentos viciosos y por la violación de la voluntad.
-
-El único veredicto es venganza, vendetta, como voto, y no en vano, pues la valía y veracidad de ésta un día vindicará al vigilante y al virtuoso.
-
-La verdad, esta vichyssoise de verborrea se está volviendo muy verbosa.
-Así que solo añadiré que es un verdadero placer conocerte y que puedes llamarme V
+![brchristianitycrucifixion](https://github.com/srobledo2021/srobledo2021/assets/113594786/304435c1-98f2-46ea-a781-ebf0bec71353)
 
 <!--
 **srobledo2021/srobledo2021** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
