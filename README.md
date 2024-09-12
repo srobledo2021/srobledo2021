@@ -1,4 +1,4 @@
-- Universidad Rey Juan Carlos学生(大学名称)
+- Universidad Rey Juan Carlos学生(胡安卡洛斯国王大学)
 - 工程师学生
 <!--
 **srobledo2021/srobledo2021** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
